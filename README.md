@@ -1,4 +1,4 @@
-Sardar Patel Institute of Technology (SPIT) Mumbai, I’m @brainybit
+- 🙋🏻‍♂️ Hi! I’m @brainybit AKA Ritik Maheshwari
 - 👀 I’m interested in Developing apps and softwares
 - 🌱 I’m currently pursuing MCA(Masters in Computer application) from Sardar Patel Institute of Technology (SPIT) Mumbai
 - 💞️ I’m looking to collaborate on AI projects and new innovative Ideas...
